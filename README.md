@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abdull-haji
 - 👀 I’m interested in data and building web apps
-- - 🌱 I’m currently learning a degree in software engineering..
+- - 🌱 I’m currently persuing  a degree in software engineering..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me humairsml77@gmail.comn...
 - 😄 Pronouns: .He/him..
